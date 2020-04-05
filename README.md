@@ -14,7 +14,17 @@ Book:
 Zoom Meeting Details:
 
 
+
 Week 1
 Reading: 
 Discussion:
+
+
+
+Actions
+Two book clubs: 5 pm PST, EST
+Sunday after easter week, 19th 
+Map peoples book interest and time
+
+
 
